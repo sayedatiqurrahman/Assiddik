@@ -1,2 +1,0 @@
-# Assiddik
-Download pdf
